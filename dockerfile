@@ -11,4 +11,3 @@ oou
 ghii
 nnhh
 nkko
-ggoo
