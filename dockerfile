@@ -8,6 +8,6 @@ ADDING SOME NEW CONTENT BY DEV-4
 
 oooo
 oou
-ghii
+ouuu
 nnhh
 nkko
